@@ -6,7 +6,7 @@
 
 Справочник будет регулярно обновляться и дополняться новыми темами, чтобы оставаться актуальным и полезным.&#x20;
 
-Linkedin: [www.linkedin.com/in/evgenii-gerasin-427b09218](broken-reference)
+Linkedin: [https://www.linkedin.com/in/evgenii-gerasin/](https://www.linkedin.com/in/evgenii-gerasin/)
 
 Telegram: [https://t.me/EvgeniiGerasin](https://t.me/EvgeniiGerasin)
 
